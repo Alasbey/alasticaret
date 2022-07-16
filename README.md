@@ -1,0 +1,2 @@
+# alasticaret
+ALANIMIZ GÜVENLİDİR
